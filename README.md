@@ -1,5 +1,6 @@
-## 台灣清華大學📘|CS專業在讀🖥|🏳️‍⚧️|🍥持證含糖|不建政🚫|🚪50|愛黨愛國愛人民✅
-
+## CS專業在讀🖥|255.255.255.165:55/tcp🏳️‍⚧️|🍥持證含糖中|不建政🚫|🚪50
+# 看什麼看，快去學習！不然怎麼推動中華民族偉大復興？？？
+多讀書，少上網，對誰都好
 <!--
 **invalidval/invalidval** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
