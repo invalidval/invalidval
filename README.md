@@ -1,5 +1,5 @@
 ## CS專業在讀🖥|0.0.0.165:55/mtf🏳️‍⚧️|🍥持證含糖中|不建政🚫|🚪50
-# 看什麼看，快去學習！不然怎麼推動中華民族偉大復興？？？
+# 再對我說奇怪的話就把你也變成女孩子！
 多讀書，少上網，對誰都好
 <!--
 **invalidval/invalidval** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
